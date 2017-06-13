@@ -1,0 +1,2 @@
+# cocu
+privacy policy
